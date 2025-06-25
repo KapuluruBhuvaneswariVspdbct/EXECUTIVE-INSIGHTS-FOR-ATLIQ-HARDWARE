@@ -49,6 +49,19 @@ Visualizations include:
 ✅ Delivered clear insights aligned with management’s needs  
 ✅ Presented findings through a business-friendly slide deck  
 ✅ Demonstrated skills in SQL, BI, and executive storytelling
+![e6b30287-99c6-4842-889b-d615372ef1e4-0](https://github.com/user-attachments/assets/f8f03a67-0fdc-4503-a263-c773460498a3)
+![e6b30287-99c6-4842-889b-d615372ef1e4-1](https://github.com/user-attachments/assets/f0f1a844-3d51-4f87-9243-b343019f5f0e)
+![e6b30287-99c6-4842-889b-d615372ef1e4-3](https://github.com/user-attachments/assets/f0f1a844-3d51-4f87-9243-b343019f5f0e)
+![e6b30287-99c6-4842-889b-d615372ef1e4-4](https://github.com/user-attachments/assets/4d38f07a-d14d-46df-b420-0cc324211f44)
+![e6b30287-99c6-4842-889b-d615372ef1e4-5](https://github.com/user-attachments/assets/4d38f07a-d14d-46df-b420-0cc324211f44)
+![Uploading e6b30287-99c6-4842-889b-d615372ef1e4-6.jpg…]()
+![e6b30287-99c6-4842-889b-d615372ef1e4-7](https://github.com/user-attachments/assets/a4291029-0e0a-453d-bfbe-5af224563c43)
+![e6b30287-99c6-4842-889b-d615372ef1e4-8](https://github.com/user-attachments/assets/a4291029-0e0a-453d-bfbe-5af224563c43)
+![e6b30287-99c6-4842-889b-d615372ef1e4-9](https://github.com/user-attachments/assets/1761173c-f3cf-43df-a423-3a802f90db06)
+![e6b30287-99c6-4842-889b-d615372ef1e4-10](https://github.com/user-attachments/assets/1761173c-f3cf-43df-a423-3a802f90db06)
+![e6b30287-99c6-4842-889b-d615372ef1e4-11](https://github.com/user-attachments/assets/574d700b-1ab1-4b4c-bd92-88452a90ef8d)
+![e6b30287-99c6-4842-889b-d615372ef1e4-12](https://github.com/user-attachments/assets/574d700b-1ab1-4b4c-bd92-88452a90ef8d)
+
 
 ---
 
