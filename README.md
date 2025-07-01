@@ -56,7 +56,7 @@ Visualizations include:
 
 ### 📢 Let's Connect!
 📧 bhuvaneswari2821@gmail.com  
-🔗 [LinkedIn](https://linkedin.com/in/yourprofile](https://www.linkedin.com/in/bhuvaneswari-kapuluru-2892682bb/))  
-💻 [GitHub](https://github.com/KapuluruBhuvaneswariVspdbcT/)  
+🔗 [LinkedIn](https://www.linkedin.com/in/bhuvaneswari-kapuluru-2892682bb/)  
+💻 [GitHub](https://github.com/KapuluruBhuvaneswariVspdbct/)  
 
 > *Disclaimer: This project is based on a fictional dataset and company for learning and demonstration purposes only.*
