@@ -49,10 +49,7 @@ Visualizations include:
 ✅ Delivered clear insights aligned with management’s needs  
 ✅ Presented findings through a business-friendly slide deck  
 ✅ Demonstrated skills in SQL, BI, and executive storytelling
-![e6b30287-99c6-4842-889b-d615372ef1e4-0](https://github.com/user-attachments/assets/f8f03a67-0fdc-4503-a263-c773460498a3)
-![e6b30287-99c6-4842-889b-d615372ef1e4-1](https://github.com/user-attachments/assets/f0f1a844-3d51-4f87-9243-b343019f5f0e)
-![e6b30287-99c6-4842-889b-d615372ef1e4-2](https://github.com/user-attachments/assets/697e5eb0-8d90-4312-b28c-389e1859ff0b)
-
+![photo-collage png](https://github.com/user-attachments/assets/da78ef65-c31d-4258-a297-d26a4222767b)
 
 
 ---
